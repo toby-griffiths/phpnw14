@@ -1,4 +1,4 @@
-phpnw14
-=======
+PHPNW Sample Repository
+=======================
 
-Repo to use with my git tutorial at PHPNW
+A simple repo to get us started working with remotes
