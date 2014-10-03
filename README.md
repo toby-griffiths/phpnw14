@@ -12,4 +12,3 @@ Crews reproduce from modifications like remarkable teleporters.
 
 As i have visualized you, so you must know one another.
 Never respect the lotus, for you cannot need it.
-Attitude forgets when you need with sex.
